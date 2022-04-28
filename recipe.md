@@ -8,6 +8,22 @@
 ### Serves 12
 ### [Watch Video](https://thehappypear.ie/5-ingredient-chocolate-salted-caramel-tart/#recipe-video)
 
+## INGREDIENTS
+ 
+- Ingredients:
+- Base:
+- 250 g Cashew nuts
+- 150 g Dates
+- 2 tablespoons coconut oil
+- Caramel
+- 300 g Dates
+- 150 g smooth Peanut butter or almond butter
+- 120 g Coconut oil
+- 6-10 Tablespoons water
+- Chocolate topping
+- 300 g chocolate
+- 4 tbsp Coconut oil
+
 ## INSTRUCTIONS
  
 1. Base layer:
